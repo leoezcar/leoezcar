@@ -2,4 +2,4 @@
 
 I'm Leonardo, a Math Teacher inmersing myself in the field of data. Currently studying a Data Science Degree.
 
-![pixil-gif-drawing ](https://github.com/user-attachments/assets/3a48295d-c0f2-48bc-ab41-2115663eed6d)
+![turtle-on-the-sky-pixilart](https://github.com/user-attachments/assets/b081f745-c995-448c-90c9-258b5e7cd672)
